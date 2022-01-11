@@ -1,6 +1,6 @@
 # Breakfast
 **For Breakfast I made four pieces of heavily buttered toast, I only had three slices though as my dog had the other one.**
-**I also made bowl of cereal and a cup of tea because I was extra hungry**
+**I also made bowl of cereal and a cup of tea because I was extra hungry.**
 
 *You can find more updates over at [My LinkedIn](https://www.linkedin.com/in/jack-lewis-follows-38392a1a2/)*
 
